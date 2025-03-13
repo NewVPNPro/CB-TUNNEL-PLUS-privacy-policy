@@ -32,9 +32,9 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 📲 Join now! On Messenger
 
-**Telegram 1**
+**Facebook Messenger**
 
-[NCS MESSENGER CHAT]([https://t.me/ncsvpnsite](https://m.me/j/AbabIBSBgK1QsnE7/))
+[NCS CHAT]([https://t.me/ncsvpnsite](https://m.me/j/AbabIBSBgK1QsnE7/))
 
 
 
@@ -42,15 +42,15 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 **Telegram 1**
 
-[NCSVPN](https://t.me/ncsvpnsite)
+[NCSVPN CHANNEL 1](https://t.me/ncsvpnsite)
 
 **Telegram 2**
 
-[NCSVPN](https://t.me/ncsprovpn)
+[NCSVPN CHANNEL 2](https://t.me/ncsprovpn)
 
 **Telegram 3**
 
-[NCSVPN](https://t.me/vpnappfreenet)
+[NCSVPN CHANNEL 3](https://t.me/vpnappfreenet)
 
 
 
