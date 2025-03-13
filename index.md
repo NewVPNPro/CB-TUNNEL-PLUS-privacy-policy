@@ -29,12 +29,16 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 📲 Join now! On Messenger
 👉https://m.me/j/AbabIBSBgK1QsnE7/
 
-📲 Join now! On Telegram
-👉https://t.me/ncsvpnsite
-👉https://t.me/ncsprovpn
-👉https://t.me/vpnappfreenet
-
 Stay Safe. Stay Anonymous. Stay Connected!
 
-**Telegram**
-[Senovpn](https://t.me/senovpn)
+📲 Join now! On Telegram
+
+**Telegram 1**
+[NCSVPN](https://t.me/ncsvpnsite)
+
+**Telegram 2**
+[NCSVPN](https://t.me/ncsprovpn)
+
+**Telegram 3**
+[NCSVPN](https://t.me/vpnappfreenet)
+
