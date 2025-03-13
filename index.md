@@ -1,4 +1,4 @@
-## 💥 Welcome TO NCS VPN 💥[scriptvps]([https://github.com/senowahyu62/scriptvps/](https://play.google.com/store/apps/details?id=com.ncsPro.vpn))
+## 💥 Welcome TO NCS VPN 💥[FREE VPN]([https://github.com/senowahyu62/scriptvps/](https://play.google.com/store/apps/details?id=com.ncsPro.vpn))
 
 ### Command Install
 
