@@ -1,7 +1,6 @@
 ## 💥 Welcome TO NCS VPN 💥
 
-### Application Link 🖇️
-👇👇👇👇👇
+### Application Link 🖇️👇👇👇👇👇
 ### [📲 Download and start for Free now!](https://play.google.com/store/apps/details?id=com.ncsPro.vpn)
 
 
@@ -50,5 +49,5 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 
 
-Stay Safe. Stay Anonymous. Stay Connected!
+### Stay Safe. Stay Anonymous. Stay Connected!
 
