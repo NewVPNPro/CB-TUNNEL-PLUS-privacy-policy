@@ -17,7 +17,9 @@ Application Link 🖇️
 
 
 🍁 New Update App Version 1.7 🍁
+
 ⚡️ New Improved AddTimer
+
 ⚡️ Fixed Some Issues.
 
 🌐 Unlock the Internet with Our Super Fast & Strong FREE NCS VPN! 🚀
@@ -27,9 +29,9 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 🌟 Join Millions of Satisfied Users! Don’t let barriers stop you—download our FREE NCS VPN today and experience the web like never before!
 
 📲 Join now! On Messenger
-👉https://m.me/j/AbabIBSBgK1QsnE7/
+**Telegram 1**
+[NCS MESSENGER CHAT]([https://t.me/ncsvpnsite](https://m.me/j/AbabIBSBgK1QsnE7/))
 
-Stay Safe. Stay Anonymous. Stay Connected!
 
 📲 Join now! On Telegram
 
@@ -41,4 +43,6 @@ Stay Safe. Stay Anonymous. Stay Connected!
 
 **Telegram 3**
 [NCSVPN](https://t.me/vpnappfreenet)
+
+Stay Safe. Stay Anonymous. Stay Connected!
 
