@@ -6,7 +6,7 @@
 
 
 
-### 📲 Join now! On Messenger
+## 📲 Join now! On Messenger
 
 **Facebook Messenger**
 
@@ -14,7 +14,7 @@
 
 
 
-### 📲 Join now! On Telegram
+## 📲 Join now! On Telegram
 
 **Telegram 1**
 
