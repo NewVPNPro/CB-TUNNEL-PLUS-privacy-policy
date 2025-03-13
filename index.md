@@ -30,7 +30,7 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 **Facebook Messenger**
 
-[NCS CHAT]([https://t.me/ncsvpnsite](https://m.me/j/AbabIBSBgK1QsnE7/))
+[NCS CHAT](https://t.me/ncsvpnsite](https://m.me/j/AbabIBSBgK1QsnE7/))
 
 
 
