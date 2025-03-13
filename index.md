@@ -22,7 +22,7 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 
 
-📲 Join now! On Messenger
+### 📲 Join now! On Messenger
 
 **Facebook Messenger**
 
@@ -30,7 +30,7 @@ Tired of slow connections and annoying restrictions? Experience lightning-fast s
 
 
 
-📲 Join now! On Telegram
+### 📲 Join now! On Telegram
 
 **Telegram 1**
 
