@@ -1,5 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Hi%2C+I'm+JCM+VPN+OWNER;A+self+learner+programmer.;A+freelance+frontend+developer." alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Hi%2C+I'm+JCM+VPN+OWNER;A+self+learner+programmer.;A+freelance+frontend+developer." alt="Typing SVG" />
 ## 💥 NCS VPN 💥
 
 ### Application Link 🖇️👇👇👇👇👇
