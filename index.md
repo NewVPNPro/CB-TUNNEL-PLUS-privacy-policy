@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages [scriptvps](https://github.com/senowahyu62/scriptvps/)
+## 💥 Welcome TO NCS VPN 💥[scriptvps]([https://github.com/senowahyu62/scriptvps/](https://play.google.com/store/apps/details?id=com.ncsPro.vpn))
 
 ### Command Install
 
@@ -14,7 +14,7 @@ rm -f setup.sh && apt update && apt upgrade -y && update-grub && sleep 2 && apt-
 📲 Download and start for Free now!
 Application Link 🖇️
 👇👇👇👇👇
-https://play.google.com/store/apps/details?id=com.ncsPro.vpn
+
 
 🍁 New Update App Version 1.7 🍁
 ⚡️ New Improved AddTimer
